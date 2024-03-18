@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cybersecurity 
 - 🌱 I’m currently learning B tech cse 
 - 💞️ i m currently pursuing COMPUTER HARDWARE, PYTHON, ETHICAL HACKING 
-- 📫 You can  reach me  through main - comp.soul.rahul@gmail.com
+- 📫 You can  reach me  through mail- comp.soul.rahul@gmail.com
 - 😄 Pronouns - Rahul
 
 
